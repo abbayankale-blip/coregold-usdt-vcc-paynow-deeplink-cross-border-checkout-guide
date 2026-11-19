@@ -47,4 +47,4 @@
 不管是追新出来的 AI 工具，还是处理各类海外数字服务付款，一套流程清晰、后台好管的虚拟卡工具都能帮省不少事。建议先从熟悉充值和开卡步骤开始，跑通一次后面就会非常顺手。
 
 👉 **[立即访问 CoreGold 官方网站注册开卡](https://app.coregold.io/signup?invite_code=ADvlj9b)**
-<img width="1983" height="793" alt="c28dd360c64acb853905521a9fad6181" src="https://github.com/user-attachments/assets/249cc78d-a3f4-4454-bf24-db9074061d46" />
+<img width="1983" height="793" alt="c28dd360c64acb853905521a9fad6181" src="https://github.com/user-attachments/assets/249cc78d-a3f4-4454-bf24-db9074061d46" /> 
